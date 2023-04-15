@@ -9,7 +9,7 @@
 
 - 📫 You can reach me at **curry@barrelwisdom.com**
 
-- ⬆️ Fun fact **I enjoy playing Stepmania**
+- ⬆️ Fun fact **I enjoy playing Stepmania** and eat way too many burritos against my will
 
 #### Languages
 
