@@ -25,7 +25,7 @@
 
 - ⬆️ Fun fact **I enjoy playing Stepmania**
 
-<div class="box">
+<div style="border:2px solid gray;">
 
 <b>Languages</b>
 
