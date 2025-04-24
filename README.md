@@ -7,4 +7,4 @@
 
 - ⬆️ I enjoy playing **Stepmania**
 
-- 😺 Pictured cat's name is **Bacchus**, he's dumber than a box of rocks. I have another named **Sugabuga**, she's the brat that claws me.
+- 😺 Pictured cat's name is **Bacchus**, he's dumber than a box of rocks.
